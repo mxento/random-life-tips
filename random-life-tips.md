@@ -1,4 +1,9 @@
 
+
+**“Eat food. Not too much. Mostly plants.”**
+Michael Pollan: Three Simple Rules for Eating
+14.04.2017
+
 **Buy and S&P index Fund**
 continuously invest in an s&p index fund (VTI) , most (80%+) mutual funds and hedge funds do not beat the market index. 05.10.2016
 
