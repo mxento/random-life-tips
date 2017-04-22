@@ -1,4 +1,8 @@
+**Do the hard stuff in the morning.**
+22.04.2017
 
+**99% of mutual funds fail to outperform the market, just buy low cost market fund**
+21.04.2017
 
 **“Eat food. Not too much. Mostly plants.”**
 Michael Pollan: Three Simple Rules for Eating
@@ -14,4 +18,4 @@ Never take 407 ETR toll road when travleing to Toronto, Canada. You can't pay th
 Compound interesting is amazing thing, get into investing early. [Ben Franklin Knows](http://www.mymoneyblog.com/ben-franklin-compound-interest.html) as soon as you start making money. Your older self will thank you for it years down the road. 23.09.2016
 
 **Listen to Podcasts**
-Listen to Podcasts on your commute to work. It's like reading books while driving. 
+Listen to Podcasts on your commute to work. It's like reading books while driving.
